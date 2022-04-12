@@ -1,0 +1,3 @@
+![Logo](https://cdn.discordapp.com/attachments/863478988865142784/963494016597520474/BIG_BANNER_SMW.png)
+
+Comming soon...
